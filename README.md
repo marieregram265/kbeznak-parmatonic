@@ -3,7 +3,7 @@
 
 here are the best site for kbeznak parmatonic:
 
-https://people.tamu.edu/~dennis44/
+http://people.tamu.edu/~dennis44/
 https://sites.google.com/tamu.edu/kbeznak-parmatonic/home
 
 
