@@ -5,7 +5,7 @@ here are the best site for kbeznak parmatonic:
 
 http://people.tamu.edu/~dennis44/
 https://sites.google.com/tamu.edu/kbeznak-parmatonic/home
-
+https://sites.google.com/view/kbeznakparmatoniclist/home
 
 here is a discription of kbeznak parmatonic:
 
